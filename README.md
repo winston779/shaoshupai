@@ -1,6 +1,6 @@
 # 少数派机场官网地址
 
-最新地址：[sspinet4.vip](https://sspai.ink/#/register?code=004XKI6d)
+最新地址：[sspinet4.vip](https://shaop.cfd:2087/#/register?code=004XKI6d)
 
 ## 少数派介绍
 
